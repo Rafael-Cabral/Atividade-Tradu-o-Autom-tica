@@ -1,0 +1,1 @@
+# Atividade-Tradu-o-Autom-tica
